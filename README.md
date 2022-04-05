@@ -1,1 +1,1 @@
-# tp3
+# tp3 2/4 exercitii Anca Letitia, Baicu Stefan
